@@ -1,0 +1,2 @@
+- I make mods for The Binding of Isaac Repentance that people may or may not like.
+- Also I can't decide whether catgirls or bunnygirls are better so why not both
